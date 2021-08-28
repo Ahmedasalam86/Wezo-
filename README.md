@@ -1,0 +1,2 @@
+# Wezo-
+Photography 
